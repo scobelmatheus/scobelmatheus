@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @scobelmatheus
+- 👀 I’m interested in virtual security
+- 🌱 I’m currently learning game dev
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me nowhere
